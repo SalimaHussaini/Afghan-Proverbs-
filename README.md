@@ -1,1 +1,1 @@
-# Afghan-Proverbs-
+# Afghan Proverbs
